@@ -1,4 +1,4 @@
-thnkyou haroon adeel
+thnkyou haroon
 .
 .
 .
